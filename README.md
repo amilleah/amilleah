@@ -2,4 +2,4 @@
 
 🏷️ what i'm up to [now](https://amilleah.com/now)  
 🌱 what's [in progress](https://inprogress.works)  
-✉️ what i'm [writing](amilleah.substack.com)  
+✉️ what i'm [writing](https://amilleah.substack.com)  
